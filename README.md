@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yashi47
-- 💁‍♀️ I’m interested in UI design 
-- 👀 I’m looking to collaborate on web/app design
+- 💁‍♀️ I’m into UI UX design 
+- 👀 And looking to collaborate on web/app design
 - 📑 Want to know how my work is? search my profile on dribble as  <a herf=https://dribbble.com/yashi47> yashi47 </a>
 - 📫 How to reach me? Mail me at yashikachoudhary251@gmail.com
 
